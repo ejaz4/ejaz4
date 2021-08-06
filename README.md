@@ -8,6 +8,4 @@
 - 😄 Pronouns: they/them
 - ⚡ Fun fact: I'm not bothered to edit this.
 
-![alt](https://ceccun.com/notes/images/notes.svg)
-
 [![Contribution Stats](https://github-contribution-stats.vercel.app/api/?username=ejaz4)](https://github.com/LordDashMe/github-contribution-stats/)
