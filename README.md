@@ -4,7 +4,7 @@
 - 🚑️ My old Scratch accounts were Bro342 and Drype
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about gimicky features.
-- 📫 How to reach me: ejaz@dothq.co
+- 📫 How to reach me: ejaz@ceccun.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm not bothered to edit this.
 
